@@ -1,11 +1,10 @@
 # Intro
-Hello, you can call me Zun, im under 18 and hope you'll respect that. You can int anytime, cuddle, etc. i would loved to interact. Im not natively speak english, if i made a mistake, tell me right away.
+Hello, you can call me Zun, you can int freely, c+h, etc. Im not native english speaker, if i made a mistake, feel free to correct me.
 
-Im very friendly, so feel free!!
-Im also very nervous when meeting new people, so i wont talk much at first. I will be excited when we have the same tastes, i became a chatty person when i feel excited, if feel uncomfortable or annoyed, im very sorry 🙏 i will be happy if you respect my friends bounderies.
+Im very friendly, but i'll get nervous when meeting new people, so i might be quiet at first. I will become really chatty if we have the same interests, if feel uncomfortable or annoyed, i apologize 🙏 i will be happy if you respect mine and my friends bounderies.
 
-Place: around Sonic area and library
+Locations: around Sonic area (mostly there) and library
 
 main fandoms: StrayKids, Alien/Zombie Stage, MDZS, Omniscient Reader Viewpoint, 3Fs
 
-Have a nice day/night, i enjoy playing with you guys ❤️
+Have a nice day/night ❤️
